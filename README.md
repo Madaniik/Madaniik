@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Madaniik
+- 👀 I’m interested in plant science
